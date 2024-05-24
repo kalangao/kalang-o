@@ -2,9 +2,9 @@
 
 (●'◡'●)
 
--sou um aluno da escola do **JOB** 🍑.  
+-sou um aluno da escola do **  IZABEL A. MARIN** 🍑.  
 
--atualmente trabalahndo como um ESCRAVO.
+-atualmente trabalahndo como um **ALUNO**.
 
 -MINHA ALTUAL FUÇÃO E ESCREVER **JAVASCRIP** NA PLATAFORMA P5.
 
